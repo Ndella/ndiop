@@ -1,2 +1,2 @@
-# Mrs Ndella DIOP KA, West Africa - French Speaker
+# Mrs Ndella DIOP, West Africa - French Speaker
 Ingénieure Informaticienne
